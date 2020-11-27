@@ -1,2 +1,0 @@
-# na-lekcje-
-dodatki/notatki
